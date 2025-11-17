@@ -27,7 +27,7 @@
 26. Paper - 11: Maharani & Alfi Inayati
 27. Aplikasi - 8: Marshal & Irfan 
 28. Paper 9: Abdul Mu'min
-29. Paper 13: Andi Abdul Hanafi
+29. Paper 13: Andi Abdul Hanafi -- tolong direvisi atau kolaborasi karena paper ini sudah dibid duluan oleh Nurwanto. lihat nomor 24
 30. Paper 16: Sutan Faiz Rasyid dan Intan Giri
 31. Paper 20: Suffy dan Sulthon
 32. Paper 10 : Thea Anugrah Felicia, Mega Ayu Natalia
