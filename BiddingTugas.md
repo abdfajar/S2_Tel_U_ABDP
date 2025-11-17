@@ -32,4 +32,5 @@
 31. Paper 20: Suffy dan Sulthon
 32. Paper 10 : Thea Anugrah Felicia, Mega Ayu Natalia
 33. Paper 2 : Pramana Putra
+34. Paper 7 : Ledi Diniyatullah
 
