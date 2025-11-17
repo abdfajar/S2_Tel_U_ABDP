@@ -3,7 +3,7 @@
 2. PaperSCM 18 : Ferri Patra - NPM MSI20202510028
 3. Aplikai-3 : Yudi Nugroho Adi - 
 4. Paper - 3 : Rizpan
-5. Aplikasi - 10 : Ilman
+5. Aplikasi - 10 : Ilman & Fadhil M
 6. Paper - 17 : Hafiz Rizki
 7. PaperSCM -5 : Hidayatul Sidiq
 8. PaperSCM - 8 : Muhammad Qasim
