@@ -33,4 +33,7 @@
 32. Paper 10 : Thea Anugrah Felicia, Mega Ayu Natalia
 33. Paper 2 : Pramana Putra
 34. Paper 7 : Ledi Diniyatullah
+35. Aplikasi 1: dhanu dan hadian rahmat
+36. PaperSCM 16: Nabiel Muhammad Al Ghazali
+37. PaperSCM 4: Dian Gunawan
 
