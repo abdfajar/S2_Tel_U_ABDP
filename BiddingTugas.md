@@ -29,3 +29,4 @@
 28. Paper 9: Abdul Mu'min
 29. Paper 13: Andi Abdul Hanafi
 30. Paper 16: Sutan Faiz Rasyid dan Intan Giri 
+31. Paper 7: Ledi Diniyatullah
