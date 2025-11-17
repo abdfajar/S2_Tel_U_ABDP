@@ -30,3 +30,6 @@
 29. Paper 13: Andi Abdul Hanafi
 30. Paper 16: Sutan Faiz Rasyid dan Intan Giri
 31. Paper 20: Suffy dan Sulthon
+32. Paper 10 : Thea Anugrah Felicia, Mega Ayu Natalia
+33. Paper 2 : Pramana Putra
+
