@@ -24,8 +24,8 @@
 23. Aplikasi 5: Ranita
 24. Paper - 13: Nurwanto
 25. Paper - 1: Irham
-26. Paper - 11: Maharani
-27. Aplikasi - 8: Marshal
+26. Paper - 11: Maharani & Alfi Inayati
+27. Aplikasi - 8: Marshal & Irfan 
 28. Paper 9: Abdul Mu'min
 29. Paper 13: Andi Abdul Hanafi
 30. Paper 16: Sutan Faiz Rasyid dan Intan Giri
