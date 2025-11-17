@@ -27,4 +27,4 @@
 26. Paper - 11: Maharani
 27. Aplikasi - 8: Marshal
 28. Paper 9: Abdul Mu'min
-29. Paper 13: Abdul Hanafi
+29. Paper 13: Andi Abdul Hanafi
