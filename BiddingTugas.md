@@ -26,4 +26,4 @@
 25. Paper - 1: Irham
 26. Paper - 11: Maharani
 27. Aplikasi - 8: Marshal
-28. 28. Paper 9: Abdul Mu'min
+28. Paper 9: Abdul Mu'min
